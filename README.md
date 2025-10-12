@@ -7,7 +7,7 @@
 
 <p align="center">
 
-![](https://files.catbox.moe/rr0r9f.jpg)     [atabook](https://forest.atabook.org) [rentry](https://rentry.co/coldwinterdays)  [prns page](https://en.pronouns.page/@041423/) ‏ 
+![](https://files.catbox.moe/rr0r9f.jpg)     [atabook](https://forest.atabook.org) [rentry](https://rentry.co/bonehunter))  [prns page](https://en.pronouns.page/@041423/) ‏ 
 
 <p align="center">
 
