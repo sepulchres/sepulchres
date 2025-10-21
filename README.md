@@ -1,4 +1,4 @@
-<h5><p align="center"> <img src="https://komarev.com/ghpvc/?username=sepulchres"> </a>
+<h5><p align="center"> <img src="https://komarev.com/ghpvc/?username=sepulchres&label=BUGS+COLLECTION&color=57683C"> </a>
 
 <p align="center">  ” someday i will toss all your         presents, and bury the letters left unsent ” ‏
 </div>
