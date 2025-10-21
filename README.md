@@ -1,6 +1,6 @@
-<p align="center">
-  ![](https://komarev.com/ghpvc/?username=sepulchres)
-</p> </div>
+
+  ![](https://komarev.com/ghpvc/?username=sepulchres)</p> </div>
+
 <p align="center">  ” someday i will toss all your         presents, and bury the letters left unsent ” ‏
 </div>
 
