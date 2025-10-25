@@ -10,7 +10,7 @@
 
 ![](https://files.catbox.moe/rr0r9f.jpg)  
 
-[atabook](https://forest.atabook.org) [rentry](https://rentry.co/bonehunter) [prns.cc](https://pronouns.cc/@woodic) ‏ 
+ [rentry](https://rentry.co/bonehunter) [prns.cc](https://pronouns.cc/@woodic) ‏ 
 
 <p align="center">
 
